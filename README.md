@@ -1,2 +1,2 @@
 My Portfolio
-Duaa CHundrigar
+Duaa Chundrigar
